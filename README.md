@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SnezhniyMishka
+- 👀 I’m interested in everything.
+- 🌱 I’m currently learning coding.
+- 💞️ I’m looking to collaborate on art.
+- 📫 How to reach me : icebear724@outlook.com
